@@ -1,16 +1,33 @@
-## Hi there 👋
+About:
+-----------
 
-<!--
-**SunriseP4rabellum/SunriseP4rabellum** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Cas/Casper (18)
+ 
+ 
+ 
 
-Here are some ideas to get you started:
+Discord: 
+----------------------
+ColeCassidyLover
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Fandoms:
+--------
+
+Disco Elysium
+
+Marvel
+
+X-Men
+
+Outlast Trails
+
+Resident Evil
+
+Dead by Daylight
+
+and more!
+
+DNI:
+--
+
+I don't really have one as I can really just block/hide but if you're racist, homophobic, transphobic, and what not! Fuck off.
