@@ -1,3 +1,8 @@
+<p align="center">
+ <img width="268" height="298" alt="quicksilver-what" src="https://github.com/user-attachments/assets/52f7f10f-8415-4cc0-bcb3-d67c1c453113" />
+ </p>
+
+
 About:
 -----------
 
