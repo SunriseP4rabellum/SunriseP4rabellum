@@ -1,5 +1,5 @@
 <p align="center">
- <img width="268" height="298" alt="quicksilver-what" src="https://github.com/user-attachments/assets/52f7f10f-8415-4cc0-bcb3-d67c1c453113" />
+<img width="498" height="249" alt="rogue-anna-marie" src="https://github.com/user-attachments/assets/ecde8e49-a123-421a-9cde-acd54d05c432" />
  </p>
 
 
