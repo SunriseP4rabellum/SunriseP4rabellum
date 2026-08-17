@@ -10,39 +10,69 @@
   </a>
 </p>
 
+<p align="center">
+ About:
+</p>
 
 
+<p align="center">
+ Cas/Casper (18)
+</p>
 
-About:
+
 -----------
 
-Cas/Casper (18)
- 
- 
- 
+<p align="center">
+ Discord: 
+</p>
 
-Discord: 
+<p align="center">
+ ColeCassidyLover
+</p>
+
+
 ----------------------
-ColeCassidyLover
 
-Fandoms:
+
+<p align="center">
+ Fandoms:
+</p>
+
+
+<p align="center">
+Disco Elysium
+</p>
+
+<p align="center">
+Marvel
+</p>
+
+<p align="center">
+X-Men
+</p>
+
+<p align="center">
+Outlast Trails
+</p>
+
+<p align="center">
+Resident Evil
+</p>
+
+<p align="center">
+Dead by Daylight
+</p>
+
+<p align="center">
+and more!
+</p>
+
 --------
 
-Disco Elysium
-
-Marvel
-
-X-Men
-
-Outlast Trails
-
-Resident Evil
-
-Dead by Daylight
-
-and more!
-
+<p align="center">
 DNI:
---
+</p>
 
+<p align="center">
 I don't really have one as I can really just block/hide but if you're racist, homophobic, transphobic, and what not! Fuck off.
+</p>
