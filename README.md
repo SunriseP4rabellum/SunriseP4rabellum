@@ -1,5 +1,5 @@
 <p align="center">
-<img width="498" height="249" alt="rogue-anna-marie" src="https://github.com/user-attachments/assets/ecde8e49-a123-421a-9cde-acd54d05c432" />
+<img width="440" height="284" alt="ad46d2a7240f673d68a2da2cae4e75fb" src="https://github.com/user-attachments/assets/0a2b94f7-d4f5-42f8-b931-4e6e81737101" />
  </p>
 
 
