@@ -16,9 +16,12 @@
 
 
 <p align="center">
- Cas/Casper (18)
+ Cas/Casper (18) 
 </p>
 
+<p align="center">
+ Or by the char. I'm playing!
+</p>
 
 -----------
 
