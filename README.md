@@ -69,6 +69,11 @@ Dead by Daylight
 </p>
 
 <p align="center">
+Detroit Become Human
+</p>
+
+
+<p align="center">
 and more!
 </p>
 
